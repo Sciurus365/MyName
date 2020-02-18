@@ -1,12 +1,12 @@
 # My name
 
-- In English: Jingmeng Cui (English approximation: Zhing-meng Tsuei)
+- In English: Jingmeng Cui (English approximation: Jing-meng Tsuei, j as in **j**eans)
 
 - Chinese characters (simplified): 崔竞蒙 
 
 This is a Chinese name. "崔 (Cui)" is the family name, and "竞蒙 (Jingmeng)" is the given name. Usually written as Jingmeng Cui in English context. 
 
-*Feel free to address me using the English approximation. Reason: since Chinese is a tone language, the original pronunciation sounds a little weird in an English sentence. We Chinese people also use English approximations when using Chinese words in English sentences (e.g., when saying Beijing, the capital city of China, in an English sentence, we usually use the pronunciation that English-speaking people use instead of the original pronunciation in Chinese). The following section is only for those who are VERY interested in phonetics.*
+*Feel free to address me using the English approximation. Reason: since Chinese is a tone language, the original pronunciation sounds a little weird in an English sentence. And the differences among different Chinese dialects are far larger than the difference between English approximation and Mandarin. We Chinese people also use English approximations when using Chinese words in English sentences (e.g., when saying Beijing). The following section is only for those who are VERY interested in phonetics.*
 
 # Pronunciation
 
